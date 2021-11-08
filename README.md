@@ -1,1 +1,3 @@
-# SlushieMan.github.io
+# Hello World
+
+Hello, nigger man
