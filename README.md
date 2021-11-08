@@ -1,2 +1,2 @@
 # SlushieMan.github.io
-Nigga Balls
+My Online Games
